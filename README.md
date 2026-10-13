@@ -1,2 +1,2 @@
 # Ardiansyah
-Work study 
+Study Work
